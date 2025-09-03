@@ -1,14 +1,14 @@
-# 💫 Hi 👋, I'm Manjeet Sharma
+# 💫 Hi 👋, I'm Eren
 **A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
 
-Email Me 👉 ✉️ **manjeetsharma9257@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **eren.techfest@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** devXbharat
 - 🌱 **I’m currently learning:** AI Agents and automation
 - 👯 **I’m looking to collaborate on:** AI Agents
 - 🤔 **I’m looking for help with:** Zuno
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** manjeetsharma9257@gmail.com
+- 📫 **How to reach me:** eren.techfest@gmail.com
 - 😄 **Pronouns:** Manjeet Bhaiya
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
