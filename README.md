@@ -12,7 +12,7 @@ Email Me 👉 ✉️ **eren.techfest@gmail.com** For Collaboration/Project or An
 - 😄 **Pronouns:** Manjeet Bhaiya
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
-## 🔗 I am a Content Creator. 😊😊
+
 
 Stay updated with the latest tutorials and projects by subscribing to my YouTube channel and following on Instagram, Facebook and Twitter.
 
