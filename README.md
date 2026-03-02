@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Eren
-**A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
+**A passionate AI Automation System || Blockchain & Web3 || System Design**
 
 Email Me 👉 ✉️ **eren.techfest@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
