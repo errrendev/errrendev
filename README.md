@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **eren.techfest@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🌱 **I’m currently learning:** AI Agents and automation
+- 🌱 **I’m currently learning:** AI automation and Web3
 - 👯 **I’m looking to collaborate on:** AI Agents
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** eren.techfest@gmail.com
