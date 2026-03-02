@@ -3,13 +3,11 @@
 
 Email Me 👉 ✉️ **eren.techfest@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** devXbharat
 - 🌱 **I’m currently learning:** AI Agents and automation
 - 👯 **I’m looking to collaborate on:** AI Agents
-- 🤔 **I’m looking for help with:** Zuno
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** eren.techfest@gmail.com
-- 😄 **Pronouns:** Manjeet Bhaiya
+- 😄 **Pronouns:** Eren Bhaiya
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 
